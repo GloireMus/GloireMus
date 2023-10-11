@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Balolage Gloire Musimwa @GloireMus
+- 👀 I’m interested in Data science, Public policy, Sustainability and Global Affairs
+- 🌱 I’m currently a Master's candidate in Data analysis and public policy evaluation at the Catholic University of Louvain in Belgium
+- 💞️ I’m looking to collaborate on innovative projects that intersect my interests in data science, public policy, sustainability, and global affairs.
+- 📫 Let's connect and explore new possibilities together! 🌍📊🤝
+- You can reach me at gloire.musimwa@gmail.com; balolage.gloire@student.uclouvain.be or in urgency at my whatsapp : +32 492 87 43 92
